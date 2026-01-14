@@ -1,1 +1,0 @@
-en kralindan gönder davetiye
